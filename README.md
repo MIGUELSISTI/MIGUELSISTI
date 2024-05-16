@@ -9,4 +9,4 @@ Você pode entrar em contato comigo 🇧🇷
 
 00001087939914sp@al.educacao.sp.gov.br
 
-![Gojo Gojo Satoru GIF](https://media.tenor.com/ofKKbAiVczQAAAAM/gojo-gojo-saotoru.gif)
+![Nervous Dog Shy Wuba GIF](https://media.tenor.com/9gqIF9ZtnF8AAAAM/nervous-dog-shy-wuba.gif)
