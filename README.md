@@ -1,6 +1,6 @@
 ***Boas vindas ao meu perfil*** 💙
 
-Meu nome é Miguel Sisti
+Meu nome é *Miguel Sisti*
 - Estou estudando na Alura
 - Estou me desenvolvendo na linguagem JavaScrip
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
